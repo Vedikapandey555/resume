@@ -1,3 +1,2 @@
-# resume
 vedika_pandey
 
